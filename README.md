@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Trofimyuk Yulia.
+- 👀 I’m interested in information about DA, IT, AI and NLP.
+- 🌱 I’m currently learning  Data analitics.
+- 📫 How to reach me e-mail: yul.trofi.ser@gmail.com
